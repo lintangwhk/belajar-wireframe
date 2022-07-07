@@ -1,0 +1,1 @@
+ini aplikasi menu sego goreng
